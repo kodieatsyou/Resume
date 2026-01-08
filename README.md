@@ -3,7 +3,7 @@ Gameplay Programmer / Systems Engineer
 
 Northglenn, CO  
 tannerjmay@gmail.com | 720-879-1738  
-github.com/kodieatsyou | itch.io/profile/kodieatsyou  
+https://github.com/kodieatsyou | https://itch.io/profile/kodieatsyou
 
 ---
 
